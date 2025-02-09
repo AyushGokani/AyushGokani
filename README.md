@@ -18,4 +18,3 @@
 ## Fun Fact
 - 🏞️ I love exploring new trails and enjoy outdoor cycling!
 
-AyushGokani/AyushGokani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
