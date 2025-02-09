@@ -1,4 +1,4 @@
-# Hi, I'm Ayush Gokani 👋
+# Hi, I'm Ayush(Ayu) 👋
 
 ## About Me
 - 🎓 I'm a 4th-year Bachelor of Computer Information Systems student at the University of the Fraser Valley, specializing in Software Development.
