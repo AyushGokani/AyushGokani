@@ -12,7 +12,7 @@
 - 💻 Software Development
 
 ## Contact Me
-- 📧 Email: ayush.gokani123@gmail.com
+- 📧 Email: gokani.2307@gmail.com
 - 🔗 LinkedIn: [Ayush Gokani](https://www.linkedin.com/in/ayushgokani)
 
 ## Fun Fact
